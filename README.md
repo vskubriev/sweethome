@@ -27,6 +27,8 @@ My sweet home project available for everyone who's like construction
 
 # Окна
 
+Четверть снизу не нужна. 
+
 https://www.youtube.com/watch?v=yoyRQsBUYiw&list=PLoqCg5xwPPaLM32PpV_42tWPLfzBKKtPW&index=10
 
 1 к 5.5
